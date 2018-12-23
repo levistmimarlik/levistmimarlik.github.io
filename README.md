@@ -1,1 +1,0 @@
-# levitstmimarlik.github.io
